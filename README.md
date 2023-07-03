@@ -1,1 +1,1 @@
-# rsschool-cv
+https://github-tenfor-ua.github.io/rsschool-cv/cv
